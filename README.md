@@ -1,1 +1,2 @@
-Vampire Samyu Blood
+Vampire Samyu Blood 
+Blood Vomiting
